@@ -1,4 +1,4 @@
-# ECOR1042---Group-Project
+# ECOR1042 Group-Project
 
 not really sure what to put hereeeeee
 
